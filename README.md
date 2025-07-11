@@ -26,4 +26,4 @@
 结语  
 选择安全可靠的在线视频平台，可以确保观众享受高清、流畅的播放体验，并且保障隐私安全。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb16 )</span>
